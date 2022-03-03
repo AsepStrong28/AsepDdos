@@ -1,2 +1,0 @@
-# AsepDdos
-TOOLS BY ASEP , NOT ABUSE
